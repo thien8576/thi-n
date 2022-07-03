@@ -1,1 +1,1 @@
-# thi-n
+Tết Trung thu hay còn được gọi là Tết Đoàn viên. Đây là một cái tết diễn ra vào 15/8 âm lịch hàng năm, dịp để mọi thành viên trong gia đình sum họp, trao những lời yêu thương. Do đó, tới ngày Trung thu, bạn không thể về sum họp với gia đình hoặc bạn muốn người thân yêu có một ngày vui trọn vẹn thì hãy gửi những lời chúc trung thu cũng chính là lời chúc tết đoàn viên hay nhất đến cho người thân yêu.
